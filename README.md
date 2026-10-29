@@ -1,31 +1,39 @@
-# -faisalbashir-seofreshs
-I'm Faisal Bashir, founder of SEO Freshs — A Global Outreach Company. My professional focus is helping businesses improve their online visibility through SEO, AI Search Optimization, digital authority, and strategic outreach.
+# Faisal Bashir | Founder of SEO Freshs
 
-🌐 Website: https://seofreshs.com/
+**SEO Consultant | GEO | AEO | AI Search Visibility**
 
-Professional Expertise
+I'm Faisal Bashir, founder of **SEO Freshs — A Global Outreach Company**. My professional focus is helping businesses improve their online visibility through SEO, AI Search Optimization, digital authority, and strategic outreach.
 
-Search Engine Optimization (SEO)
+🌐 **Website:** [https://seofreshs.com/](https://seofreshs.com/)
 
-Generative Engine Optimization (GEO)
+---
 
-Answer Engine Optimization (AEO)
+## Professional Expertise
 
-AI Search Visibility
+- Search Engine Optimization (SEO)
+- Generative Engine Optimization (GEO)
+- Answer Engine Optimization (AEO)
+- AI Search Visibility
+- Link Building & Guest Posting
+- Blogger Outreach
+- Content Optimization
+- Digital Authority Building
 
-Link Building & Guest Posting
+## About SEO Freshs
 
-Blogger Outreach
+SEO Freshs helps businesses strengthen their online presence through SEO, content writing, link building, guest posting, and AI search visibility strategies.
 
-Content Optimization
+Our goal is to help brands build sustainable digital authority and improve their discoverability across search engines and AI-powered platforms.
 
-Digital Authority Building
-
-About SEO Freshs
-
-SEO Freshs helps businesses strengthen their online presence through SEO, content, link building, guest posting, and AI search visibility strategies.
-Let's Connect:
+## Let's Connect
 
 For professional collaborations, SEO projects, and digital growth opportunities, visit:
 
-https://seofreshs.com/
+🌐 [SEO Freshs](https://seofreshs.com/)
+
+💼 [Connect on LinkedIn](https://pk.linkedin.com/in/faisal-bashir-69013b319)
+
+---
+
+*Helping brands grow organically across search engines and AI-powered search.*
+
