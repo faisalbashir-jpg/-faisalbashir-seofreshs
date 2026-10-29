@@ -4,7 +4,8 @@
 
 I'm Faisal Bashir, founder of **SEO Freshs — A Global Outreach Company**. My professional focus is helping businesses improve their online visibility through SEO, AI Search Optimization, digital authority, and strategic outreach.
 
-🌐 **Website:** [https://seofreshs.com/](https://seofreshs.com/)
+🌐 Website: [https://seofreshs.com/](https://seofreshs.com/)
+connect on : https://regal-pika-d1d03f.netlify.app/
 
 ---
 
@@ -31,7 +32,7 @@ For professional collaborations, SEO projects, and digital growth opportunities,
 
 🌐 [SEO Freshs](https://seofreshs.com/)
 
-💼 [Connect on LinkedIn](https://pk.linkedin.com/in/faisal-bashir-69013b319)
+💼 (https://regal-pika-d1d03f.netlify.app/)
 
 ---
 
