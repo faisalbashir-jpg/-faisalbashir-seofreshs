@@ -1,38 +1,79 @@
-# Faisal Bashir | Founder of SEO Freshs
+Faisal Bashir
 
-**SEO Consultant | GEO | AEO | AI Search Visibility**
+Founder of SEO Freshs | SEO, GEO & AEO Consultant
 
-I'm Faisal Bashir, founder of **SEO Freshs — A Global Outreach Company**. My professional focus is helping businesses improve their online visibility through SEO, AI Search Optimization, digital authority, and strategic outreach.
+Helping businesses strengthen their search visibility, digital authority, and discoverability across search engines and AI-powered platforms.
 
-🌐 Website: [https://seofreshs.com/](https://seofreshs.com/)
-connect on : https://regal-pika-d1d03f.netlify.app/
+I'm Faisal Bashir, founder of SEO Freshs — A Global Outreach Company. My work focuses on strategic SEO, content optimization, digital PR, authority building, and emerging AI search optimization practices.
+
+🌐 Company Website: https://seofreshs.com/
+
+💼 Personal Portfolio: [https://regal-pika-d1d03f.netlify.app/](https://faisalbashir-seofreshs.netlify.app/)
 
 ---
 
-## Professional Expertise
+About Me
+
+I work at the intersection of search engine optimization, digital authority, and AI-powered discovery.
+
+Through SEO Freshs, I focus on helping businesses develop sustainable organic visibility, strengthen their online presence, and build a foundation for long-term digital growth.
+
+My professional interests include traditional search engines, generative search experiences, content discoverability, and brand visibility across emerging AI platforms.
+
+Areas of Expertise
 
 - Search Engine Optimization (SEO)
 - Generative Engine Optimization (GEO)
 - Answer Engine Optimization (AEO)
 - AI Search Visibility
-- Link Building & Guest Posting
-- Blogger Outreach
-- Content Optimization
+- Technical and On-Page SEO
+- Link Building and Guest Posting
+- Blogger Outreach and Digital PR
+- Content Strategy and Optimization
 - Digital Authority Building
 
-## About SEO Freshs
+SEO Freshs
 
-SEO Freshs helps businesses strengthen their online presence through SEO, content writing, link building, guest posting, and AI search visibility strategies.
+SEO Freshs — A Global Outreach Company helps businesses improve their digital presence through SEO, content writing, guest posting, link building, and AI search optimization strategies.
 
-Our goal is to help brands build sustainable digital authority and improve their discoverability across search engines and AI-powered platforms.
+Our focus is on creating sustainable visibility through relevant content, strategic outreach, and long-term authority development.
 
-## Let's Connect
+🌐 Website: https://seofreshs.com/
 
-For professional collaborations, SEO projects, and digital growth opportunities, visit:
+Projects & Case Studies
 
-🌐 [SEO Freshs](https://seofreshs.com/)
+This section will feature selected projects demonstrating SEO strategy, organic search performance, content improvements, and AI search visibility research.
 
-💼 (https://regal-pika-d1d03f.netlify.app/)
+Each case study should include:
+
+- [Project objective](https://seofreshs.com/case-study/a-case-study-on-strategic-link-insertions-to-increase-organic-traffic-keyword-rankings-and-domain-authority/)
+- [Website and industry](https://seofreshs.com/case-study/boosting-organic-traffic-and-domain-authority-through-multilingual-link-building/)
+- [Challenges identified](https://seofreshs.com/case-study/how-seo-freshs-increased-organic-traffic-by-390-through-ultra-high-quality-do-follow-backlinks/)
+- [Strategy implemented](https://seofreshs.com/case-study/citation-building-seo-case-study/)
+- [Verified results and measurement period](https://seofreshs.com/case-study/how-a-sydney-removalist-business-grew-from-dr-0-to-dr-62-in-7-months-through-strategic-content-seo-overview-this-case-study-explains-how-a-sydney-based-removalist-business-in-australia-achieved-a-do/)
+
+Detailed project results will be added as case studies are published and verified.
+
+Research & Industry Insights
+
+My areas of research and professional interest include:
+
+- Generative Engine Optimization
+- Answer Engine Optimization
+- Brand mentions and AI citations
+- Content citability and information quality
+- Search visibility across AI-powered platforms
+- Digital authority and entity recognition
+
+Professional Collaboration
+
+I'm interested in connecting with businesses, marketing professionals, and industry experts working on SEO, digital growth, content strategy, and AI search visibility.
+
+🌐 SEO Freshs: https://seofreshs.com/
+
+💼 Personal Portfolio: [https://regal-pika-d1d03f.netlify.app/](https://faisalbashir-seofreshs.netlify.app/)
+
+
 
 ---
 
