@@ -8,7 +8,7 @@ I'm Faisal Bashir, founder of SEO Freshs — A Global Outreach Company. My work 
 
 🌐 Company Website: https://seofreshs.com/
 
-💼 Personal Portfolio: [https://regal-pika-d1d03f.netlify.app/](https://faisalbashir-seofreshs.netlify.app/)
+💼 Personal Portfolio:(https://faisalbashir-seofreshs.netlify.app/)
 
 ---
 
@@ -71,7 +71,7 @@ I'm interested in connecting with businesses, marketing professionals, and indus
 
 🌐 SEO Freshs: https://seofreshs.com/
 
-💼 Personal Portfolio: [https://regal-pika-d1d03f.netlify.app/](https://faisalbashir-seofreshs.netlify.app/)
+💼 Personal Portfolio:(https://faisalbashir-seofreshs.netlify.app/)
 
 
 
